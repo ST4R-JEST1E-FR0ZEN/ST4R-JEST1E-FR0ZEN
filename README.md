@@ -16,7 +16,7 @@ I usually sit in the Rain World area (Beside Hermitcraft, under the hill) or wit
 
 I am an artist working mostly with 2D and animation! Please don't ask for free drawings, I have enough work on my head ദ്ദി ༎ຶ‿༎ຶ )! I'd love to draw something on your straw.page though, if you're in any fandoms I'm in!
 
-I'm sorry if I make spelling mistakes, english is not my first language! I am polish, so I don't mind if you start the conversation in polish!
+I'm sorry if I make spelling mistakes, english is not my first language! I am polish and I wouldn't mind if you prefer to talk in polish!
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
