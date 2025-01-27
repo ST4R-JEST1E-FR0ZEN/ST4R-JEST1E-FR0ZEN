@@ -5,7 +5,7 @@
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 Please don't use he/him pronouns towards me! I don't mind any other, but my prefered pronouns are she/they! I am a demigirl and a lesbian!
-You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)!
+You're probably here from ponytown or discord (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)!
 
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, haha!
 
