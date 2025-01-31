@@ -4,6 +4,8 @@
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
+You can call me by: Jester or Jestie, Frozen, Star. Ellie/Elise/Meg only if we're close <33
+
 Please don't use he/him pronouns towards me! I don't mind any other, but my prefered pronouns are she/they! I am a demigirl and a lesbian!
 You're probably here from ponytown or discord (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)!
 
