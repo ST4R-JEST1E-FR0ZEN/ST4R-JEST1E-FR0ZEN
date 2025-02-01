@@ -9,6 +9,8 @@ You can call me by: Jester/Jestie, Frozen, Star. Ellie/Elise/Meg only if we're c
 Please don't use he/him pronouns towards me! I don't mind any other, but my prefered pronouns are she/they! I am a demigirl and a lesbian!
 You're probably here from ponytown or discord (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)!
 
+Don't add me to friends randomly, I add only people I know at least a bit. I will not help you with anything using my supporter/nitro unless you are my friend. You can dm/whisper to me, but I might not always respond. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
+
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, haha!
 
 ( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, I don't want to fight with you. Please dont interact if you're below 13 and over 25ish. Lesbian fetishits (!!!!). Panic AU weirds me out, you can INT, but please don't expect me to respect the AU. **ghostzi, you know who.**
