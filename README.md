@@ -11,7 +11,7 @@ You're probably here from ponytown or discord (if not then idk what u doing here
 
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, haha!
 
-( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, dramas stress me out. Please dont interact if you're below 13 and over 25ish. Lesbian fetishits (!!!!). Panic AU weirds me out, you can INT, but please don't expect me to respect the AU. **ghostzi, you know who.**
+( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, I don't want to fight with you. Please dont interact if you're below 13 and over 25ish. Lesbian fetishits (!!!!). Panic AU weirds me out, you can INT, but please don't expect me to respect the AU. **ghostzi, you know who.**
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
