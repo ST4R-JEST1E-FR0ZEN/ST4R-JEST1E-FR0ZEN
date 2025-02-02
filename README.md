@@ -6,7 +6,7 @@
 
 You can call me by: Jester/Jestie, Frozen, Star. Ellie/Elise/Meg only if we're close <33
 
-Please don't use he/him pronouns towards me! I don't mind any other, but my prefered pronouns are she/they! I am a demigirl and a lesbian!
+Any pronouns are fine, but my prefered pronouns are she/they! I am a demigirl and a lesbian!
 You're probably here from ponytown or discord (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)!
 
 Don't add me to friends randomly, I add only people I know at least a bit. I will not help you with anything using my supporter/nitro unless you are my friend. You can dm/whisper to me, but I might not always respond. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
