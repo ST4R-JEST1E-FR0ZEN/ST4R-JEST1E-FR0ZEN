@@ -1,4 +1,4 @@
-# ST4R | FR0ZEN | ELISE
+# ST4R \ JEST1E / FR0ZEN ༉‧₊˚.
 
 ˏˋ°•⁀➷🧡 *Like the stars in the dusk, my dear* ***(LOVE MY GF!)*** 💜⸜(｡ ˃ ᵕ ˂ )⸝♡
 
