@@ -16,7 +16,7 @@ Don't add me to friends randomly, I add only people I know at least a bit. I wil
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
-I usually sit in the Rain World area, Murder Drones area with my friends, or I just walk around the world (Mostly by the main road to the docks). (˵ •̀ ᴗ - ˵ ) ✧ You can always C+H (unless I specifically ask you not to! Or if I sit with a group).
+I usually just walk around the world (Mostly by the main road to the docks), but sometimes just sit wherever my friends are. (˵ •̀ ᴗ - ˵ ) ✧ You can always C+H (unless I specifically ask you not to! Or if I sit with a group).
 
 I am an artist working mostly with 2D art and animation! Please don't ask for free drawings, I have enough work on my head ദ്ദി ༎ຶ‿༎ຶ )! I'd love to draw something on your straw.page though, if you're in any fandoms I'm in!
 
