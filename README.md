@@ -1,7 +1,6 @@
 # ST4R \ JEST1E / FR0ZEN ༉‧₊˚.
 
 ˏˋ°•⁀➷ ***The starless sky is nothing but an empty canvas***
-
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 You can call me by: Jester/Jestie, Frozen, Star. Ellie/Elise/Meg only if we're close <33
