@@ -26,5 +26,5 @@ I'm sorry if I make spelling mistakes, english is not my first language! I am po
 
 Please inform me if I make any mistakes while talking to you and hurt your feelings, it's the last thing I want to do (◞‸ ◟)💧. I am neurodivergent and I may not understand everything directly, I would love tone tags! https://tonetags.carrd.co/#masterlist
 
-![image](https://github.com/user-attachments/assets/3bbacc56-3225-492e-a492-7d618ce049fd)
+![image](https://github.com/user-attachments/assets/c8011e8e-7625-4600-bd17-b21469ae27a1)
 ^this me btw
