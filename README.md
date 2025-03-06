@@ -10,17 +10,17 @@ Any pronouns are fine, but my prefered pronouns are she/they! I am a lesbian dem
 
 Don't add me to friends randomly, I add only people I know at least a bit. I will not help you with anything using my supporter unless you are my friend. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
 
+I am an artist working mostly with 2D art and animation! Please don't ask for free drawings, I have enough work on my head ദ്ദി ༎ຶ‿༎ຶ )! I'd love to draw something on your straw.page though, if you're in any fandoms I'm in!
+
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, haha!
 
 ( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, I don't want to fight with you. Please dont interact if you're below 13 and over 25ish. Lesbian fetishits (!!!!). For MD fans: DNI if you are apart of the Panic AU fandom.
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
-For Ponytown, I usually just walk around the world (Mostly by the main road to the docks), but sometimes just sit wherever my friends are. (˵ •̀ ᴗ - ˵ ) ✧ You can always C+H (unless I specifically ask you not to! Or if I sit with a group).
+I usually just walk around the world (Mostly by the main road to the docks), but sometimes just sit wherever my friends are. (˵ •̀ ᴗ - ˵ ) ✧ You can always C+H (unless I specifically ask you not to! Or if I sit with a group).
 
-I am an artist working mostly with 2D art and animation! Please don't ask for free drawings, I have enough work on my head ദ്ദി ༎ຶ‿༎ຶ )! I'd love to draw something on your straw.page though, if you're in any fandoms I'm in!
-
-I'm sorry if I make spelling mistakes, english is not my first language! I am polish and I wouldn't mind if you prefer to talk in polish!
+I'm sorry if I make spelling mistakes, english is not my first language! I am polish and I wouldn't mind if you'd prefer to talk in polish!
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
