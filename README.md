@@ -8,7 +8,7 @@ You can call me by: Jester/Jestie, Frozen, Star. Ellie/Elise/Meg only if we're c
 
 Any pronouns are fine, but my prefered pronouns are she/they! I am a lesbian demigirl! You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! 
 
-Don't add me to friends randomly, I add only people I know at least a bit. I will not help you with anything using my supporter unless you are my friend. You can whisper me, but I might not always respond. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
+Don't add me to friends randomly, I add only people I know at least a bit. I will not help you with anything using my supporter unless you are my friend. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
 
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, haha!
 
