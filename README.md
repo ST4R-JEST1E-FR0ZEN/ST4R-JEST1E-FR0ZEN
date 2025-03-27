@@ -19,7 +19,7 @@ I am an artist working mostly with 2D art and animation! Please don't ask for fr
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
-I usually just walk around the world (Mostly by the main road to the docks), but sometimes just sit wherever my friends are. (˵ •̀ ᴗ - ˵ ) ✧ You can always C+H (unless I specifically ask you not to! Or if I sit with a group).
+I usually just walk around the world (Mostly by the main road to the docks), but sometimes just sit wherever my friends are. Besides that I sometimes sit in these areas: CRK, Rainworld, Roblox, and very rarely in Hoyoverse's and MD's. (˵ •̀ ᴗ - ˵ ) ✧ You can always C+H (unless I specifically ask you not to! Or if I sit with a group).
 
 I'm sorry if I make spelling mistakes, english is not my first language! I am polish and I wouldn't mind if you'd prefer to talk in polish!
 
