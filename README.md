@@ -7,11 +7,11 @@
 
 You can call me by: Jester/Jestie, Frozen, Star. Or any char I am/anyone I kin.
 
-Any pronouns are fine, but my prefered pronouns are they! I am a lesbian nbie! You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! 
+Any pronouns are fine, but my prefered pronouns are they! I am a lesbian nbie. You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic or quiet towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! 
 
 Don't add me to friends randomly, I add only people I know at least a bit. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
 
-I am an artist working mostly with 2D art and animation! Please don't ask for free drawings, I have enough work on my head ദ്ദി ༎ຶ‿༎ຶ )! I'd love to draw something on your straw.page though, if you're in any fandoms I'm in!
+I am an artist working mostly with 2D art and animation! Please don't ask for free drawings, I have enough work on my head, sobs. I'd love to draw something on your straw.page though, if you're in any fandoms I'm in!
 
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, haha!
 
