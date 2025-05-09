@@ -31,26 +31,10 @@ Please inform me if I make any mistakes while talking to you and hurt your feeli
 
 Kin list (mostly for me) for anyone who cares:
 
-Two time-Forsaken
-Siffrin - Isat
-Shadow Milk -CRK
-Jinx/Powder -Arcane
-ENA-Well… ENA
-Sunny-Omori
-Ellie Williams - TLOU
-Ranpo - BSD
-Aliens like overall and dolls/machines
-Sunday - HSR
-Xueyi - HSR
+Two time-Forsaken, Siffrin - Isat, Shadow Milk -CRK, Jinx/Powder -Arcane, ENA-Well… ENA, Sunny-Omori, Ellie Williams - TLOU, Ranpo - BSD, Aliens like overall and dolls/machines ,Sunday - HSR, Xueyi - HSR
 
 Smaller Kins:
-1x1x1x1 - forsaken (as a character)
-N - MD
-Hanako-TBHK
-Furina-Genshin
-Mitsuki-TGIWINWAGAA
-Basil - Omori
-Sparkle - HSR
+1x1x1x1 - forsaken (as a character), Hanako-TBHK, Furina-Genshin, Mitsuki-TGIWINWAGAA, Basil - Omori, Sparkle - HSR
 
 ![image](https://github.com/user-attachments/assets/c8011e8e-7625-4600-bd17-b21469ae27a1)
 ^this me btw
