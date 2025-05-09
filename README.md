@@ -27,6 +27,31 @@ I'm sorry if I make spelling mistakes, english is not my first language! I am po
 
 Please inform me if I make any mistakes while talking to you and hurt your feelings, it's the last thing I want to do (◞‸ ◟)💧. I am neurodivergent and I may not understand everything directly, I would love tone tags! https://tonetags.carrd.co/#masterlist
 
+‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
+
+Kin list (mostly for me) for anyone who cares:
+
+Two time-Forsaken
+Siffrin - Isat
+Shadow Milk -CRK
+Jinx/Powder -Arcane
+ENA-Well… ENA
+Sunny-Omori
+Ellie Williams - TLOU
+Ranpo - BSD
+Aliens like overall and dolls/machines
+Sunday - HSR
+Xueyi - HSR
+
+Smaller Kins:
+1x1x1x1 - forsaken (as a character)
+N - MD
+Hanako-TBHK
+Furina-Genshin
+Mitsuki-TGIWINWAGAA
+Basil - Omori
+Sparkle - HSR
+
 ![image](https://github.com/user-attachments/assets/c8011e8e-7625-4600-bd17-b21469ae27a1)
 ^this me btw
 ![image](https://github.com/user-attachments/assets/c47b6988-ed8e-44df-a8f1-2cfcd250c18a)
