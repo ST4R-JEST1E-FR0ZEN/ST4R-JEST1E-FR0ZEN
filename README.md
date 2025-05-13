@@ -15,7 +15,7 @@ I am an artist working mostly with 2D art and animation! Please don't ask for fr
 
 ˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. I will treat you as equal no matter your age, but please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, hshshs!
 
-( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, I don't want to fight with you. Please dont interact if you're below 13 and over 25ish. Lesbian fetishits (!!!!). For MD fans: DNI if you are apart of the Panic AU fandom.
+( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, I don't want to fight with you. I'm okay with roleplay, but not too excessive/serious! It gets me stressed out a bit :'). Please dont interact if you're below 13 and over 25ish. Lesbian fetishits (!!!!). For MD fans: DNI if you are apart of the Panic AU fandom.
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
