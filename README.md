@@ -7,7 +7,7 @@
 
 You can call me by: Jester/Jestie, Frozen, Star. Or any char I am/anyone I kin.
 
-Any pronouns are fine, but my prefered pronouns are they! I am a lesbian nbie. You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic or quiet towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! If i have c+h I don't mind being covered!
+Any pronouns are fine, but my prefered pronouns are they/them! I am a lesbian nbie. You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic or quiet towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! If i have c+h I don't mind being covered!
 
 Don't add me to friends randomly, I add only people I know at least a bit. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
 
