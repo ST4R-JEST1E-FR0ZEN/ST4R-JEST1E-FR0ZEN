@@ -39,7 +39,7 @@ Smaller Kins:
 ![image](https://github.com/user-attachments/assets/c8011e8e-7625-4600-bd17-b21469ae27a1)![image](https://github.com/user-attachments/assets/7befc55e-503e-4ea7-b16a-cf08e9ea7da9)
 
 ^this me btw
-![Uploading image.png…]()
+
 
 ![image](https://github.com/user-attachments/assets/c47b6988-ed8e-44df-a8f1-2cfcd250c18a)
 
