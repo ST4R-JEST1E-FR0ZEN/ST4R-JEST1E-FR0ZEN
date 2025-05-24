@@ -13,7 +13,7 @@ Don't add me to friends randomly, I add only people I know at least a bit. Do no
 
 I am an artist working mostly with 2D art and animation! I'd love to draw something on your straw.page if you're in any fandoms I'm in!
 
-˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. Would prefer to int with ppl ages 16-20ish, but I will treat you as equal no matter your age, still please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, hshshs!
+˚₊· ͟͟͞͞➳❥ INT! - I don't mind anyone interacting with me, as long as they are not apart of my DNI list or just look for a fight. Ships are okay!! Would prefer to int with ppl ages 16-20ish, but I will treat you as equal no matter your age, still please don't act weird about it. I might be too scared to talk to you if I find you cooler than me, haha----- ૮(˶╥︿╥)ა, but don't worry about reaching out to me! I love talking and when I'll get used to you I can talk about any topic, hshshs!
 
 ( ꩜ ᯅ ꩜;)⁭ ⁭DNI = Basic DNI! All of shippers that get way too much into the ship. Toxic people, I don't want to fight with you. I'm okay with roleplay, but not too excessive/serious! It gets me stressed out a bit :'). Please dont interact if you're below 14 and over 25ish. Lesbian fetishits (!!!!). For MD fans: DNI if you are apart of the Panic AU fandom.
 
