@@ -31,7 +31,7 @@ Please inform me if I make any mistakes while talking to you and hurt your feeli
 
 Kin list (mostly for me) for anyone who cares:
 
-Broker - Phighting!, Two time - Forsaken, Siffrin - Isat, Shadow Milk - CRK, Jinx/Powder - Arcane, ENA - From ENA show!, Sunny - Omori, Sunday - HSR!
+Broker - Phighting!, Two time - Forsaken, Siffrin/Loop - Isat, Shadow Milk - CRK, Jinx/Powder - Arcane, ENA - From ENA show!, Sunny - Omori, Sunday - HSR!
 
 Smaller Kins:
 1x1x1x1 - forsaken (as a character), Shuriken - Phighting!, Hanako-TBHK, Furina-Genshin, Mitsuki-TGIWINWAGAA, Basil - Omori, Sparkle - HSR, Xueyi - HSR, Ellie Williams - TLOU, Anaxagoras - HSR, Ranpo - BSD, Aliens and dolls/machines overall!
