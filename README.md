@@ -7,7 +7,7 @@
 
 You can call me honestly anything (like my kins or ur own nickname for me), but here are some of my names if u wanna use them: Jester/Jestie, Frozen, Star.
 
-Any pronouns are fine, but my prefered pronouns are they/them! I am a lesbian nbie. You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic or quiet towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! If i have c+h I don't mind being covered!
+Any pronouns are fine, but my prefered pronouns are they/them! I am a nbie. You're probably here from ponytown (if not then idk what u doing here (╥﹏╥) sobs). If you're a rando I don't know I might be rly sarcastic or quiet towards you at first (๑>؂•̀๑)! I'm often afk or semi afk, so please W2I if you want to get noticed. I might not see your msg in game otherwise! If i have c+h I don't mind being covered!
 
 Don't add me to friends randomly, I add only people I know at least a bit. Do not add me if you plan to never talk to me again, and I delete people that are offline for +14 days and I don't know that much. I'll re-add you if you reach out tho! <3
 
@@ -31,7 +31,7 @@ Please inform me if I make any mistakes while talking to you and hurt your feeli
 
 Kin list (mostly for me) for anyone who cares:
 
-Broker - Phighting!, Two time - Forsaken, Siffrin/Loop - Isat, Shadow Milk - CRK, Jinx/Powder - Arcane, ENA - From ENA show!, Sunny - Omori, Sunday - HSR!
+Kris - Deltarune, Broker - Phighting!, Two time - Forsaken, Siffrin/Loop - Isat, Shadow Milk - CRK, Jinx/Powder - Arcane, ENA - From ENA show!, Sunny - Omori, Sunday - HSR!
 
 Smaller Kins:
 1x1x1x1 - forsaken (as a character), Shuriken - Phighting!, Hanako-TBHK, Furina-Genshin, Mitsuki-TGIWINWAGAA, Basil - Omori, Sparkle - HSR, Xueyi - HSR, Ellie Williams - TLOU, Anaxagoras - HSR, Ranpo - BSD, Aliens and dolls/machines overall!
